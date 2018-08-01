@@ -1,0 +1,2 @@
+# gunlugum
+Günlüğüm - Günlük - Blog
